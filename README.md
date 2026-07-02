@@ -1,1 +1,1 @@
-# Supersonic-stabilty-project-for-experimental-rockets-
+# Supersonic-stabilIty-project-for-experimental-rockets-
